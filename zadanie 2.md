@@ -1,1 +1,0 @@
-![Алгоритм](C:\Users\feitulla\Desktop\kontrol\t2\zadanie%202.md)
